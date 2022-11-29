@@ -1,0 +1,2 @@
+# demir
+Mavi tik
